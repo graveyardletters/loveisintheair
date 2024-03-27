@@ -13,4 +13,3 @@ housekinokuni/landofthelustrous, MLP, omori,
 
 ok rgars all bye 
 
-![bir](https://github.com/zillyforeternity/zillyforeternity/assets/152684330/5bf11582-df05-44a5-af26-725500e3387a)
