@@ -9,7 +9,7 @@ interact w/ me or w2i, i also draw :333
 dni you know who you are 
 
 .  here r tehe fandoms im in: 
-housekinokuni/landofthelustrous, MLP, omori, 
+housekinokuni/landofthelustrous, MLP, omori, idv... 
 
 ok rgars all bye 
 
