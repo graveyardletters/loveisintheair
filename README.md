@@ -6,7 +6,7 @@ you mostly see me in ponytown idk
 
 interact w/ me or w2i, i also draw :333
 
-dni you know who you are 
+dni : the basic dni criteria (e.g transphobes, homophobes) and darkshippers , proshippers :( 
 
 .  here r the fandoms im in: 
 housekinokuni/landofthelustrous, omori, idv... 
