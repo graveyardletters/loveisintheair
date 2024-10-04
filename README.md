@@ -1,15 +1,9 @@
-![mewo](https://github.com/zillyforeternity/zillyforeternity/assets/152684330/2e12bf0c-c406-4360-9a6a-795bd1f4b04f)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![emma](https://github.com/user-attachments/assets/48bb7e25-343f-428c-8166-3ca413b53f3b)
 
-haiiiiii im addi 
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤisfpㅤㅤㅤㅤㅤㅤbisexual & aromanticㅤㅤㅤㅤㅤㅤㅤc+h and int please ♡
 
-you mostly see me in ponytown idk 
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ  ㅤ![haaa](https://github.com/user-attachments/assets/9b391a59-9bcd-4e68-a8aa-dbf59bcafb14)
 
-interact w/ me or w2i, i also draw :333
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤdniㅤ––– proshippers, pedo's, ppl who make jokes about ssb9 
 
-dni : the basic dni criteria (e.g transphobes, homophobes) and darkshippers , proshippers :( 
-
-.  here r the fandoms im in: 
-housekinokuni/landofthelustrous, omori, idv... 
-
-thats all um bai :3
-
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤbyi ––– feel free to block me if you feel uncomfortable with me since i usually act freaky or weird 
