@@ -1,9 +1,15 @@
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![emma](https://github.com/user-attachments/assets/48bb7e25-343f-428c-8166-3ca413b53f3b)
+                ![divider](https://github.com/user-attachments/assets/660b0dcf-a8d3-493d-900c-7acb3462c20e)
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤisfpㅤㅤㅤㅤㅤㅤbisexual & aromanticㅤㅤㅤㅤㅤㅤㅤc+h and int please ♡
+                addi              isfp            bisexual & aro
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ  ㅤ![haaa](https://github.com/user-attachments/assets/9b391a59-9bcd-4e68-a8aa-dbf59bcafb14)
+                          trans ftm but any pronouns are fine
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤdniㅤ––– proshippers, pedo's, ppl who make jokes about ssb9 
+                 ![divider 2](https://github.com/user-attachments/assets/2c4b783e-9e8f-4268-b80d-a84563b54884)
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤbyi ––– feel free to block me if you feel uncomfortable with me since i usually act freaky or weird 
+                 ![cat](https://github.com/user-attachments/assets/63f0230c-53e0-437c-8e66-bc60c49570c3) interests hnk , atsv/itsv , idv , wonderend
+
+                 interact basically anyone who arent on the basic dni criteria
+
+                 do not interact : basic dni critieria, proshippers, u know what u are
+                 
+                                ![banner 5](https://github.com/user-attachments/assets/3a4711dd-3a14-4dc5-ba95-2b79781e5ea0)
