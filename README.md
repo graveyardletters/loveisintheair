@@ -12,4 +12,5 @@
 
                  do not interact : basic dni critieria, proshippers, u know what u are
                  
-                                ![banner 5](https://github.com/user-attachments/assets/3a4711dd-3a14-4dc5-ba95-2b79781e5ea0)
+
+                ![divider](https://github.com/user-attachments/assets/660b0dcf-a8d3-493d-900c-7acb3462c20e)
